@@ -1,3 +1,3 @@
 # cv-lab5
 
-<img width="1029" height="990" alt="image" src="https://github.com/user-attachments/assets/39f9a79e-a571-4cc5-a4fe-5c1db22dbbca" />
+<img width="1489" height="996" alt="image" src="https://github.com/user-attachments/assets/eb99d00a-28d6-404c-a035-4311fb807400" />
